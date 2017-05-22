@@ -1,5 +1,5 @@
 # TED-
-reading material for daily life
+
 It's six o'clock in the morning, pitch black outside. My 14-year-old son is fast asleep in his bed, sleeping the reckless, deep sleep of a teenager. I flip on the light and physically shake the poor boy awake, because I know that, like ripping off a Band-Aid, it's better to get it over with quickly.
 0:31
 (Laughter)
